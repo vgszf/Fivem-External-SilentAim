@@ -1,5 +1,5 @@
 Salve rapaziada, estamos vazando a source(BASE) do nosso cheat externo a nossa foi totalmente refeita porém não adianta um cheat bom sem bypass né ? Quem quiser comprar o nosso cheat + bypass só abrir ticket
-https://discord.gg/mixcodes
+https://discord.gg/squidbypass
 
 discord user -> vq1pb
 discord link (don't change) -> https://discord.com/users/1161007366456737853
